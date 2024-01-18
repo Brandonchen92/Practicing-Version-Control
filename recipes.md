@@ -52,6 +52,9 @@ Instructions:
 Ingredients:
 - 1 pound spaghetti
 - 1 pound ground beef
+- 2 pounds of Vodka
+- 7 pounds of Jack Daniels Whiskey
+- 3 pounds of Smirnoff Ice
 - 1/2 cup bread crumbs
 - 1/4 cup milk
 - 1/4 cup grated Parmesan cheese
