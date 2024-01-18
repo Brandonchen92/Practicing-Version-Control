@@ -77,6 +77,9 @@ Instructions:
 Ingredients:
 - 2 boneless, skinless chicken breasts
 - Salt and pepper to taste
+- Add a pinch of sugar
+- Add another pinch of Vodka
+- Add some water
 - 2 tablespoons olive oil
 - 4 slices Swiss cheese
 - 4 hamburger buns
