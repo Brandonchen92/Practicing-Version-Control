@@ -116,3 +116,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 40 to 50 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Generic Alcohol Beverage
+
+Ingredients:
+- 4 cups of Jack Daniels
+- 5 cups of Baileys
+- 6 cups of Smirnoff Ice
+- 7 cups of Soju
+- 8 cups of Budlight
+
+Instructions:
+1. Pour all the drinks into a bowl
+2. Stir real good
+3. Beat the drinks
+4. Drink and Enjoy.
